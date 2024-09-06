@@ -1,5 +1,5 @@
 
-Bonjour!    Nous proposons des prêts scolaires et divers prêts à court et long terme dans toute l'Europe et en Amérique Latine avec un taux d'intérêt de 2% :
+Bonjour!    Nous proposons des prêts scolaires et divers prêts à court et long terme dans toute l'Europe avec un taux d'intérêt de 2% :
 
      
 
